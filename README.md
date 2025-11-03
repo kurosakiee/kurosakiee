@@ -3,7 +3,7 @@
 - 🌹  I’m primarily and mainly a python programmer 🐍
 - 💞️ I’m looking to collaborate on nothing ✨
 - 📫 How to reach me: Email me at kurosakieenyxaster@gmail.com 📧
-- 😄 Pronouns: he/him (male strictly) ♂️
+- 😄 Sex: Male ♂️
 - ⚡ Fun fact: i am not an introverted yet 🦇
 - 👑 Aspirining to become a cyber-security and/or machine learning expert 🤖
 - 🐺 My profile is a picture of Popol, a character from Mobile Legend, hes a boy and his wolf is called kupa 🎮
